@@ -1,7 +1,7 @@
 ### Wondrous day, warmest greeting to you. 
 #### This bio aims to bid my heartfelt gratitude by virtue of you who stumbled onto my profile. Pleasant to meet you!
 
-**2004** : She loves being lost in her own paradise, wandering the bottomless imagination about how beautiful it'll be if she can accept the fact that she's destined to majoring in *computer science*.
+**2004** : She loves being lost in her own paradise, wandering the bottomless imagination about how beautiful it'll be if she can accept the fact that she's destined to major in *computer science*.
 
 Claiming <em> wise </em> as her name, she outshine her hurtful thought with her calming mind and beautiful silence, ***Alyza Pramudya***.
 
