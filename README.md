@@ -1,5 +1,6 @@
 ### Wondrous day, warmest greeting to you. 
 #### This bio aims to bid my heartfelt gratitude by virtue of you who stumbled onto my profile. Pleasant to meet you!
+(https://pbs.twimg.com/profile_banners/1283068880202592257/1639721468/1080x360)
 
 **2004** : She loves being lost in her own paradise, wandering the bottomless imagination about how beautiful it'll be if she can accept the fact that she's destined to major in *computer science*.
 
