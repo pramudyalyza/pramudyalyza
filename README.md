@@ -7,7 +7,6 @@
 
 - 📝 I sometimes write on [https://medium.com/@alyzapramudya](https://medium.com/@alyzapramudya)
 
-- ⚡ Fun fact **I think I'm supposedly born as a dinosaur, not a human** <br>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
